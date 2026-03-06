@@ -1,3 +1,3 @@
 # syc REDACTED schizo yuppies co
 
-"It's Easy To Hate The Rich, But Do You Have The Courage To Hate The Poor?"
+"tis ezz 2 hate de rich boy & white gurls, but do u have deez courage 2 hate de poor?"
